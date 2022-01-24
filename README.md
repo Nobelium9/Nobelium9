@@ -10,9 +10,9 @@
 
 - 📫 nobeliumacc@gmail.com
 
-- Facebook : Nobel Accalogoun
-
 - Whatsapp : https://wa.me/+22969538063
+
+- Telegram : https://t.me/+22969538063
 
 
 <!---
